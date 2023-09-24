@@ -1,2 +1,0 @@
-# kader
-coba roy
